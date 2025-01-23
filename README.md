@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...karthik_anala
-- 😄 Pronouns: ...kathi,nani
+- 😄 Pronouns: ...karthi,nani
 - ⚡ Fun fact: ...completed schooling in 6 schools
 
 <!---
